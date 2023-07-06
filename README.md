@@ -1,4 +1,4 @@
-永久回家地址：52av.vip
+永久回家地址：https://52av.vip 
 
 官方邮箱： avstar1966@gmail.com
 
