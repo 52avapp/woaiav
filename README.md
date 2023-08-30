@@ -1,4 +1,4 @@
-最新地址：https://api.hoa04.cc/loading52.html?c=nbhome1
+最新地址：https://chis.cshun.cn/c5.html?c=nbhome1
 
 官方邮箱： avstar1966@gmail.com
 
